@@ -1,0 +1,2 @@
+# Virtext
+gunakan dengan bijak
